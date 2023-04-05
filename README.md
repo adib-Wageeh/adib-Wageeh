@@ -13,9 +13,9 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me: 
 
-linkedin: https://www.linkedin.com/in/adib-wageeh/
+  linkedin: https://www.linkedin.com/in/adib-wageeh/
 
-Facebook: https://www.facebook.com/adib.wageeh.5l/
+  Facebook: https://www.facebook.com/adib.wageeh.5l/
 
 
 
